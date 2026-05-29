@@ -1,1 +1,0 @@
-# BASDAT_103122400056_RaditaPutriNuraini_SE0802
